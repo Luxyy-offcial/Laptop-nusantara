@@ -1,2 +1,0 @@
-# Laptop-nusantara
-Laptop-nusantara
